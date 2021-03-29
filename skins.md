@@ -32,7 +32,7 @@
 # [cookiezi shiuwasi](https://monkeebanan.s-ul.eu/skzQqDzd)
 ![](https://osu.ppy.sh/ss/16397727/aaf9)
 
-# [404 edit](https://monkeebanan.s-ul.eu/dpUeLwAr)
+# [404 edit](https://monkeebanan.s-ul.eu/B7dmjZ7V)
 ![](https://osu.ppy.sh/ss/16397742/28dc)
 
 # [ADHD](https://monkeebanan.s-ul.eu/uc5hlePC)
