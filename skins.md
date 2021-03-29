@@ -1,4 +1,10 @@
 
+# [-shiu v1.0](https://monkeebanan.s-ul.eu/qQRFzYJf)
+![](https://osu.ppy.sh/ss/16397690/0817)
+
+# [shiuwasi v1.0](https://monkeebanan.s-ul.eu/FtFzngGv)
+![](https://osu.ppy.sh/ss/16397714/ad7a)
+
 # [red pixel long trail](https://monkeebanan.s-ul.eu/fygC4QpU)
 ![](https://osu.ppy.sh/ss/16397697/d53d)
 
