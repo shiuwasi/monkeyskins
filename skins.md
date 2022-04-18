@@ -1,6 +1,6 @@
 
 # [vaxei dark](https://monkeebanan.s-ul.eu/LX9EMxOx)
-![](https://osu.ppy.sh/ss/16397739/5917)
+![](https://cdn.discordapp.com/attachments/378217716911177730/965511747588988958/screenshot017.png)
 
 # [xootynator](https://monkeebanan.s-ul.eu/5yD5cIK0)
 ![](https://osu.ppy.sh/ss/16397725/c100)
